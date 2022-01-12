@@ -1,4 +1,4 @@
-# global-gateways-
+# global-gateways
 Best Immigration and visa Consultants Bangalore
 Currently there are five countries those have a point based immigration programme. schedule. The point based immigration program tells an option to people those want to work and settle in overseas. There is no. of categories under which candidate can apply. You can apply independently or have a relative guarantor to you or an overseas Employer guarantor you or the country it-self guarantor you. Candidates whose professions are in demand habitually get premium points and faster processing. Each country has their peculiar specific list of professions.
 
